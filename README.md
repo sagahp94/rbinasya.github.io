@@ -1,3 +1,3 @@
 # rbinasya.github.io
-Repo Cydia của tui
-I'm non-binary pansexual from Hai Phong, Viet Nam 😍🌈🌈😍
+Repo Cydia của tui!
+Tui là non-binary toàn tính ở Hải Phòng, Việt Nam 😍🌈🌈😍
